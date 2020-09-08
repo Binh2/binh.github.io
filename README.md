@@ -1,1 +1,0 @@
-# binh.github.io
